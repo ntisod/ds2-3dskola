@@ -1,0 +1,1 @@
+Alex och Erik arbetar med 3d-modellering av utsidan av byggnaden.
